@@ -14,3 +14,7 @@ DNI:
 🚫》 THOSE kinda Eddie fans-
 
 🚫》 Honestly if you write/view Eddie as someone who would be abusive and a cheater??? What????
+
+
+<img width="736" height="736" alt="Untitled185_20260125160232" src="https://github.com/user-attachments/assets/38e00aa2-a802-438f-87e9-65787d8496ae" />
+
