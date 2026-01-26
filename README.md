@@ -3,7 +3,7 @@
 
 heyo if you're here from PonyTown; if you're too lazy to check out my main profile (understandable) here's a run-down:
 
-adult / she-her / aegoromantic
+adult / she-her / aegoromantic / genuinely mentally unwell but too broke to figure out what
 
 DNI:
 
